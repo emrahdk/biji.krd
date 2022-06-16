@@ -1,3 +1,3 @@
 # biji.krd
 
-TODO
+🔴☀️🟢
